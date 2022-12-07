@@ -1,0 +1,1 @@
+# Industrial_AI_Challenge_2022
